@@ -1,10 +1,5 @@
-![image](https://github.com/user-attachments/assets/85ff104e-a8f6-431d-88e5-f12930200c5b)
 
-![image](https://github.com/user-attachments/assets/2cf2f52b-6c83-40d6-a3a6-90c5b9b8b180)
-
-
-
-![image](https://github.com/user-attachments/assets/e34b95ed-1111-447f-b84e-f35dedb5c64a)
+![Yeni Proje (3)](https://github.com/user-attachments/assets/c0f37358-ce10-4b14-80e4-3bfd78bd856a)
 
 
 
